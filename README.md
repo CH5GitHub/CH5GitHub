@@ -2,6 +2,26 @@
 - 👀 I’m interested in Computer Coding
 - 🌱 I’m currently learning Python
 - 📫 How to reach me is to dm me on discord CH5Plays#5274
+!Don't go to far!
+
+
+
+
+
+
+
+
+
+
+!Oh No!
+
+
+
+
+
+
+
+
 - ![RickrollNeverGonnaGiveYouUpGIF](https://user-images.githubusercontent.com/92840372/194317057-df216356-8520-4c04-94c0-c04e76a53529.gif)
 
 <!---
